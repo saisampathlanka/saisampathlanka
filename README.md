@@ -1,5 +1,5 @@
 - Hi, I'm Lanka Sai Sampath
 
-- Currrently working as Junior Software Developer.
+- Currrently working as Software Developer.
 
 - Competitive Gamer.
